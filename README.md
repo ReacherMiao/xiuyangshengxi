@@ -1,1 +1,1 @@
-# xiuyangshengxi
+# 中文修养生息手册 V1.0
